@@ -1,5 +1,5 @@
 [![Logo Image](https://cdn.arkade.one/files/assets/img/logo.png)](https://arkade.one)
-# Get Your Game On with ArkadeONE!
+# Get Your Game On!
 
 ## ArkadeONE: Get Your Game On with Unmatched Performance and Affordability
 
